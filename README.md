@@ -1,1 +1,1 @@
-# belly-button-challenge
+Collaborated on this assignment with Karin T.
